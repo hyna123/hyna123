@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **Web Development.**
 
-- 📫 How to reach me **disappointedchild2003@gmail.com**
+- 📫 How to reach me **hinatufail003@gmail.com**
 
 - ⚡ Fun fact **I make people laugh often.**
 
